@@ -1,4 +1,1 @@
-
-
-
-https://cdn.discordapp.com/attachments/597445991699841056/1222125835461591070/IMG_7184.png?ex=66151461&is=66029f61&hm=c2f741bcb69d36f3eb41af82b0b6102fc608388adeefa55092f640ef7e1a4bec&
+![image](https://github.com/EAS-Clark/tkn-status/assets/98745819/7f9128d7-bad2-483b-8198-a4711d67ac90)
